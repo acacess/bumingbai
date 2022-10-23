@@ -1,4 +1,4 @@
-# 不明白播客嘉宾推荐书单
+# 不明白播客嘉宾的推荐
 
 Book Recommendation in [Bumingbai Podcast](https://www.bumingbai.net/all-previous-episodes/)
 
