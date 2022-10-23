@@ -89,7 +89,7 @@ Book Recommendation in [Bumingbai Podcast](https://www.bumingbai.net/all-previou
 20. [EP-020【20大专题】蔡霞：我为什么对中共绝望？](https://www.bumingbai.net/2022/10/ep-020-cai-xia)
 	1. [《失败的党，一个体制内人士与北京决裂》](https://www.foreignaffairs.com/articles/china/2020-12-04/chinese-communist-party-failed)
 	2. [《习近平的弱点：狂妄与偏执如何威胁中国的未来》](https://www.foreignaffairs.com/china/xi-jinping-china-weakness-hubris-paranoia-threaten-future)
-	3. [《中共眼中的中美关系，一个局内人的观点》](https://www.hoover.org/research/china-us-relations-eyes-chinese-communist-party-insiders-perspective-zhong-gong-yan-zhong
+	3. [《中共眼中的中美关系，一个局内人的观点》](https://www.hoover.org/research/china-us-relations-eyes-chinese-communist-party-insiders-perspective-zhong-gong-yan-zhong)
 21. [EP-021【20大专题】吴国光：极权时代反抗的可能性](https://www.bumingbai.net/2022/10/ep-021-wu-guoguang)
 	1. 汉娜·阿伦特的《极权主义的起源》
 	2. 《在德黑兰读<洛丽塔>》
