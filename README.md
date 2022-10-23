@@ -1,6 +1,6 @@
 # 不明白播客嘉宾的推荐
 
-Book Recommendation in [Bumingbai Podcast](https://www.bumingbai.net/all-previous-episodes/)
+Recommendations in [Bumingbai Podcast](https://www.bumingbai.net/all-previous-episodes/)
 
 1. [EP-001 慕容雪村：武汉传来的声音](https://www.bumingbai.net/2022/05/ep-001-murong-xuecun)
 	1. [Indelible City: Dispossession and Defiance in Hong Kong](https://www.amazon.com/Indelible-City-Dispossession-Defiance-Hong/dp/0593191811) by Louisa Lim
