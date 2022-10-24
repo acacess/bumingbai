@@ -62,7 +62,7 @@ Recommendations in [Bumingbai Podcast](https://www.bumingbai.net/all-previous-ep
 	3. 《文明》
 13. [EP-013 Paul Huang：台湾为武统做好准备了吗？](https://www.bumingbai.net/2022/08/ep-013-paul-huang)
 	1. 《光荣之路》Pass of Glory
-	2. [The Room Where it Happened](https://www.amazon.com/Room-Where-Happened-White-Memoir/dp/1797112392) by John Boton
+	2. [The Room Where it Happened](https://www.amazon.com/Room-Where-Happened-White-Memoir/dp/1797112392) by John Bolton
 	3. 《红星照耀太平洋》
 14. [EP-014 崔静雯：汉服、和服和马面裙](https://www.bumingbai.net/2022/08/ep-014-cui-jingwen)
 	1. 《汉服归来》
@@ -85,7 +85,7 @@ Recommendations in [Bumingbai Podcast](https://www.bumingbai.net/all-previous-ep
 19. [EP-019【20大专题】江雪/张洁平：中国媒体过去10年发生了什么？](https://www.bumingbai.net/2022/10/ep-019-jiang-xue-zhang-jieping)
 	1. [《战火中国1937-1952》](https://www.books.com.tw/products/0010873945)
 	2. 弗洛姆的《爱的艺术》
-	3. 哈耶克的《通往奴隶之路》
+	3. 哈耶克的《通往奴役之路》
 20. [EP-020【20大专题】蔡霞：我为什么对中共绝望？](https://www.bumingbai.net/2022/10/ep-020-cai-xia)
 	1. [《失败的党，一个体制内人士与北京决裂》](https://www.foreignaffairs.com/articles/china/2020-12-04/chinese-communist-party-failed)
 	2. [《习近平的弱点：狂妄与偏执如何威胁中国的未来》](https://www.foreignaffairs.com/china/xi-jinping-china-weakness-hubris-paranoia-threaten-future)
