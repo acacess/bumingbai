@@ -96,3 +96,7 @@ Recommendations in [Bumingbai Podcast](https://www.bumingbai.net/all-previous-ep
 	3. 《了不起的盖茨比》
 	4. 《退出、呼吁与忠诚》（Exit, Voice and Loyalty）
 	5. 赫希曼的《自我颠覆的癖好》
+23. [EP-023 四通桥后，那些年轻的抗议者](https://www.bumingbai.net/2022/10/ep-023-kathy-the-protester/)
+	1. [《算命》](https://movie.douban.com/subject/4073872/) 徐童
+	2. [《沉静如海》](https://movie.douban.com/subject/1769507/) [法] 皮埃尔·布特龙 导演
+	3. [《第22条军规》](https://book.douban.com/subject/1088812/) [美] 约瑟夫·海勒 著
